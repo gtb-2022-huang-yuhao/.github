@@ -16,3 +16,5 @@
 
 ## 个人总结
 Integrity Proactive Collaboration Innovation
+
+![生活照1华润大学](https://user-images.githubusercontent.com/48132802/155892597-7886a6cf-4dca-46fa-8498-d61e9aeb9e48.jpg)
